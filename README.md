@@ -1,1 +1,1 @@
-### Hi there 🖖 Check my website at sychedelix.com
+### Hi there 🖖 Check my website at [sychedelix.com](https://sychedelix.com/)
